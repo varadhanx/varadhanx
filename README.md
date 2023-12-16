@@ -1,4 +1,6 @@
-- 👋 Hi, I’m varadhan.s.
+- 👋  MY VIEWERS IM __________ANGELA YU'S____________ STUDENT ............
+-
+- Hi, I’m varadhan.s.
 - 👀 I’m interested in data science , ARTIFICIAL INTELLIGENCE & MACHINE LEARNING .
 - 🌱 I’m currently learning DATA SCIENCE, AI , ML.
 - 💞️ I’m looking to collaborate on ALL KINDS OF TECH ACTIVITIES
