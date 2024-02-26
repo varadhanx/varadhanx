@@ -4,7 +4,7 @@
 - 👀 I’m interested in data science , ARTIFICIAL INTELLIGENCE & MACHINE LEARNING .
 - 🌱 I’m currently learning DATA SCIENCE, AI , ML.
 - 💞️ I’m looking to collaborate on ALL KINDS OF TECH ACTIVITIES
-- 📫 How to reach me ...  CONTACT : 8072083732 .... Gmail : THEROYCE18@GMAIL.COM
+- 📫 To reach  me :  ...  CONTACT : 8072083732 .... Gmail : THEROYCE18@GMAIL.COM
 - 
 
 <!---
